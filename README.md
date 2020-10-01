@@ -1,2 +1,2 @@
-Here you can visit the website..
+Here you can visit the website.
 [link]:http://rainbowblossom.epizy.com/
